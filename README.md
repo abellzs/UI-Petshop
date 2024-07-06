@@ -1,1 +1,7 @@
 ![image](https://github.com/abellzs/UI-Petshop/assets/111642738/4b73a3e8-571a-4db2-806c-267c28833d82)
+![image](https://github.com/abellzs/UI-Petshop/assets/111642738/ad0a1a9d-2855-4754-bcbf-e5018ccdd12d)
+![image](https://github.com/abellzs/UI-Petshop/assets/111642738/24d61d2f-d082-4831-a055-af65162d61a8)
+![image](https://github.com/abellzs/UI-Petshop/assets/111642738/b86a89e2-9800-48a8-9495-07de84bd9031)
+![image](https://github.com/abellzs/UI-Petshop/assets/111642738/944367d7-6d9e-4682-8c90-31d1677376a8)
+![image](https://github.com/abellzs/UI-Petshop/assets/111642738/6e2364a3-211b-40de-8dac-48535b26aae6)
+![image](https://github.com/abellzs/UI-Petshop/assets/111642738/806cf981-b902-46bf-8cc7-0db16be3316b)
